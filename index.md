@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Q&A
 
-I'm glad you are here. I plan to talk about ...
+> nie su nove postupy, len informacie z platnych priruciek, nenahradzju, len vysvetluju
+
+## Deicing
